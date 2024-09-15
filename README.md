@@ -1,4 +1,3 @@
-<meta name="google-site-verification" content="TzPWpqPgTzAmZyRomiQKUgsLUhiQbQuqNsNaQsDdaaI" />
 <p>How to Create a Facebook Account Without a Phone Number? How to register on Facebook without providing a phone number using Facetel.&nbsp;How to Sign Up for Facebook Without a Phone Number?</p>
 <p><a href="https://ji.basesfiles.com/getfile/TJKK?title=FaceTel">Download Facetel program for free</a></p>
 <h2>How to Sign Up for Facebook Without a Phone Number</h2>
